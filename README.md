@@ -1,1 +1,2 @@
 Manucher Buicki
+buickim@oregonstate.edu
